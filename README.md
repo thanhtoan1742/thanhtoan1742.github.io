@@ -1,0 +1,1 @@
+A place where I can write down what's on my mind.
